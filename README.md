@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zuhair-Ahmed-94
-- 👀 I’m interested in everything almost
+- 👀 I’m interested in almost everything 
 - 📫 How to reach me zuhair449@gmail.com
 
 <!---
